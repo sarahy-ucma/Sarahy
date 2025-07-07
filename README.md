@@ -9,7 +9,7 @@ Estudio la carrera de sistemas computacionales
 
 Tengo 22 años 
 
-Soy mamá de una perrita salchciha llamada Magala 🐾
+Soy mamá de una perrita salchicha llamada Magala 🐾
 
 Me gusta ver peliculas animadas 🎥
 
