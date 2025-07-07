@@ -1,10 +1,15 @@
 # Hola soy Sarahy 🍓
 
-Ingeniera en Sistemas Computacionales 
-Mexico | Linkinn | sandra01.calzada@gmail.com
+👩‍💻Ingeniera en Sistemas Computacionales 
+
+🇲🇽 Mexico | Linkinn | sandra01.calzada@gmail.com
 
 ## Sobre mi 
-EStudio la carrera de sistemas computacionales, tengo 22 años  y me gusta comer 
+Estudio la carrera de sistemas computacionales
+Tengo 22 años 
+Soy mamá de una perrita salchciha llamada Magala 🐾
+Me gusta ver peliculas animadas 🎥
+El primer pais que quiero conocer es Tokyo 🏯🇯🇵
 
 
 ##  Tecnologias y herramientas 
