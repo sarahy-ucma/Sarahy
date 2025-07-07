@@ -6,9 +6,13 @@
 
 ## Sobre mi 
 Estudio la carrera de sistemas computacionales
+
 Tengo 22 años 
+
 Soy mamá de una perrita salchciha llamada Magala 🐾
+
 Me gusta ver peliculas animadas 🎥
+
 El primer pais que quiero conocer es Tokyo 🏯🇯🇵
 
 
